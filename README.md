@@ -2,8 +2,8 @@
 
 ## 회의 및 아카이빙 
 
-[https://www.notion.so/9dfd78b8a1cd4f8891a9799fb9e7c313
-](https://www.notion.so/9dfd78b8a1cd4f8891a9799fb9e7c313)
+https://www.notion.so/9dfd78b8a1cd4f8891a9799fb9e7c313
+
 ## 주관: 중소기업벤처부 이어드림 스쿨 2기
 
 <br>
